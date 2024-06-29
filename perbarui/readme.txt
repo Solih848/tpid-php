@@ -1,1 +1,0 @@
-Mon e delem zip aria Mas, ning e delem win scp na minta tolong sare agi file se nyamana pade ben se e delem zip aria. Minta tolong update agi codinganna entah e hapusse kadek file se lama otabe copy paste file se baru (e delem zip aria) ka delem file se lama. Kalangkong!!!🙏😁
