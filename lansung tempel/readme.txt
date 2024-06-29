@@ -1,0 +1,1 @@
+Mon e delem zip aria Mas kare nyabek ka delem folder 'sembako' mase nyamana e server/win scp. Pokok la sabek lejjuh pa sejajar ben se laen. Mon folder 'lay' jeria sabek kyah lejjuh pa sejajar be se laen. Kalangkong!!! 🙏😁
